@@ -1,2 +1,2 @@
 # OGFarmersGIF
-A GIF for the OG Farmers. Cheers to farming for 6 months and counting!
+As a tribute to the OG Farmers, here's a GIF and badge (PNG) featuring Farmer Chad. Cheers to farming for 6 months and counting!
